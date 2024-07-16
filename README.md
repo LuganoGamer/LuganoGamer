@@ -19,4 +19,5 @@ Tenho compreensão em linguagem Inglês basico, linguagem Espanhol, TI.
   <img src= "https://github.com/user-attachments/assets/d526f68c-4f0e-4bec-82e0-796521a099dd">
   <img src= "https://github.com/user-attachments/assets/ea9fa6f6-49d9-40ac-aaba-d2e7b6ee637e">
   <img src= "https://github.com/user-attachments/assets/859568cf-da24-454b-b9cf-218d607d16e2">
+  <img src= "https://github.com/user-attachments/assets/16ad5dfd-fa14-49ad-9574-04d003563ff4">
 </div>
