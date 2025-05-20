@@ -1,8 +1,8 @@
 Olá, me chamo Victor Gabriel.
-Atualmente tenho em média de 24 anos.
+Atualmente tenho 25 anos.
 
 Estou trabalhando como Operador de Motores II.
-Já trabalho na empresa a quase 6 anos.
+Já trabalho na empresa a quase 7 anos.
 Hoje estou capacitado a trabalhar em 4 Linhas de Montagens, porém, estou capacitado a trabalhar na Área de Qualidade.
 Tenho compreensão em linguagem Inglês basico, linguagem Espanhol, TI.
 
