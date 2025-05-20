@@ -1,7 +1,8 @@
 Olá, me chamo Victor Gabriel.
 Atualmente tenho 25 anos.
 
-Estou trabalhando como Operador de Motores II.
+Atualmente estou trabalhando de QM (Quality Measurement), estou atuando em apenas 1 linha de produção, capacitado em fazer em 4 linhas de produção.
+Sou Operador de Motores II.
 Já trabalho na empresa a quase 7 anos.
 Hoje estou capacitado a trabalhar em 4 Linhas de Montagens, porém, estou capacitado a trabalhar na Área de Qualidade.
 Tenho compreensão em linguagem Inglês basico, linguagem Espanhol, TI.
